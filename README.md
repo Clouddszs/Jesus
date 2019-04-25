@@ -1,1 +1,1 @@
-# Jesus
+Hello, children. This server will just be a hangout for all willing users. We shall call if willing to. You are allowed to do as many things as you want, i will be announcing rules though. SO LETS FUCK THIS UP PEPS.
